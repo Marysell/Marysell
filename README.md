@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Marysell
-- 👀 I’m interested in programming, english language and shopping.
+- 👀 I’m interested in programming, English language and shopping.
 - 🌱 I’m currently learning programming.
 - 💞️ I’m looking to collaborate on some project...
 - 📫 How to reach me ..maricelgomez82@gmail.com
